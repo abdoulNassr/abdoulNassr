@@ -1,4 +1,4 @@
-## Hi, abdoul is 
+## Hi, I'm abdoul!
 
 - 📚 a Software Engineering student sharing my journey and learnings in tech
 - 🔭 passionate about tech, innovations, AI!
